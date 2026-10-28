@@ -1,0 +1,1 @@
+Revanza Alif ialah Marketing Communication Officer berpengalaman dalam manajemen event, strategi komunikasi, dan ekosistem digital perbankan. Menguasai Meta Ads, content editing, serta pengelolaan proyek dari hulu ke hilir secara profesional. Siap membantu meningkatkan performa serta jangkauan bisnis dan merek Anda secara optimal.
